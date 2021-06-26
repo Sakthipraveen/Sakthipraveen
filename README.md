@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Sakthipraveen
+- 👀 I’m interested in Automating things..
+- 🌱 I’m currently learning ...
+- 📫 How to reach me --> sspraveen611@gmail.com
+- ⚡ Love to code and Play badminton.
